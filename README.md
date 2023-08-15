@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @elSayit
+- 👋 Hi, I’m @ilmurod
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning everything that my time allows me
 - 💞️ I’m looking to collaborate on 
